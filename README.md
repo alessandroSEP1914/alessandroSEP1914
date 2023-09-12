@@ -1,0 +1,3 @@
+- 👋 Olá, sou Alessandro
+- Sou professor de Tecnologia e Inovação
+- Trabalho na Escola Estadual José Antônio Coutinho Condino
